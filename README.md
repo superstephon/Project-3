@@ -77,3 +77,13 @@ Anyways, Louis Vuitton is mainly known for it's print. The print is put on every
 > The new off-white Off-White is simply the most prestigous of the streetwear fashion brands. It is top of the line and is known for it's many collabs with Nike and other fashion brands. Any collab with Off-White is a staple, ***simple as that***.
 
 --------
+
+# My Favorite!!!
+
+## Off-White
+
+Off-White is the best fashion brand in my opinion for the following reasons.
+
+* BEST designs, the spinoffs of their designs bring new and creative ideas
+* AMAZING collabs, their collabs always turn out good and they aren't afraid to collab with companies of different style apparal.
+* BETTER brand, the logo and the clean look of their branding is brilliant.
