@@ -2,6 +2,11 @@
 
 ### This is my project on my favorite fashion brands and what I think about them!
 
+# Rules when scrolling
+
+1. Stop at *lines*
+1. Don't read ahead
+1. Buy every specialty
 
 #  🐵 BAPE 🙈
 ![Bape](https://upload.wikimedia.org/wikipedia/en/0/03/A_Bathing_Ape_%28logo%29.png)
