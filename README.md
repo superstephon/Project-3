@@ -1,5 +1,6 @@
 # 𝐹𝒶𝓈𝒽𝒾𝑜𝓃 𝐵𝓇𝒶𝓃𝒹𝓈 😩😜👏💯
 
+### This is my project on my favorite fashion brands and what I think about them!
 
 #  🐵 BAPE 🙈
 ![Bape](https://upload.wikimedia.org/wikipedia/en/0/03/A_Bathing_Ape_%28logo%29.png)
