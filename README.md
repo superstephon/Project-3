@@ -56,7 +56,7 @@
 # Specialty ( ͡° ͜ʖ ͡°)
 
 ### The Print
-![LouisVuitton](https://us.louisvuitton.com/images/is/image/lv/1/PP_VP_L/louis-vuitton-neverfull-mm-monogram-handbags--M40995_PM2_Front%20view.jpg)
+![LouisVuitton](https://images-na.ssl-images-amazon.com/images/I/71VLFnakvJL._UL1214_.jpg)
 
 --------
 > Louis Vuitton is a fashion brand for the rich. **SIMPLY RICH PEOPLE**, That is all.
