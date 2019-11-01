@@ -2,6 +2,7 @@
 
 ### This is my project on my favorite fashion brands and what I think about them!
 
+
 #  🐵 BAPE 🙈
 ![Bape](https://upload.wikimedia.org/wikipedia/en/0/03/A_Bathing_Ape_%28logo%29.png)
 
@@ -35,7 +36,7 @@
 ![Under](https://slimages.macysassets.com/is/image/MCY/products/6/optimized/8864146_fpx.tif?op_sharpen=1&wid=500&hei=613&fit=fit,1&$filtersm$)
 
 --------
-> Calvin Klein is most known for it's underwear. The underwear line is advertised by a lot of the top celeberaties like Justin Beiber, Kylie Jenner and many more. Instagram models are known for being a big advertiser in Calvin Klein underwear. However Calvin Klein is a big company and sell a lot more than just underwear. They are primarily a formal fashion brand with clothes that are more suited for business fashion than streetwear. They are also a big contender in jewlery, having many pieces that are intracate and essential for a collection.
+> Calvin Klein is most known for it's *underwear*. The underwear line is advertised by a lot of the top celeberaties like Justin Beiber, Kylie Jenner and many more. Instagram models are known for being a big advertiser in Calvin Klein underwear. However Calvin Klein is a big company and sell a lot more than just underwear. They are primarily a formal fashion brand with clothes that are more suited for business fashion than streetwear. They are also a big contender in jewlery, having many pieces that are intracate and essential for a collection.
 --------
  
 # 🐎 Polo, Raulph Lauren 🐎
@@ -61,5 +62,18 @@
 --------
 > Louis Vuitton is a fashion brand for the rich. **SIMPLY RICH PEOPLE**, That is all.
 Anyways, Louis Vuitton is mainly known for it's print. The print is put on everything and the quality of the materials are very high. Louis Vuitton apparrel is at top-end of the rich fashion brands.
+
+--------
+
+# 🧡"OFF-WHITE"🧡
+![Off-White](https://ih1.redbubble.net/image.417861085.0473/flat,800x800,070,f.u6.jpg)
+
+# Specialty ( ͡° ͜ʖ ͡°)
+
+### Off-White Strap
+![Strap](https://cdn-images.farfetch-contents.com/13/70/40/89/13704089_16572618_480.jpg)
+
+--------
+> The new off-white Off-White is simply the most prestigous of the streetwear fashion brands. It is top of the line and is known for it's many collabs with Nike and other fashion brands. Any collab with Off-White is a staple, ***simple as that***.
 
 --------
