@@ -34,6 +34,18 @@
 ![Under](https://slimages.macysassets.com/is/image/MCY/products/6/optimized/8864146_fpx.tif?op_sharpen=1&wid=500&hei=613&fit=fit,1&$filtersm$)
 
 --------
-> Calvin Klein is most known for it's underwear. The underwear line is advertised by a lot of the top celeberaties like Justin Beiber, Kylie Jenner and many more. Instagram models are known for being a big advertiser in Calvin Klein underwear. However Calvin Klein is a big company and sell a lot more than just underwear. They are primarily a formal fashion brand with clothes that are more suited for business fashion than streetwear.
+> Calvin Klein is most known for it's underwear. The underwear line is advertised by a lot of the top celeberaties like Justin Beiber, Kylie Jenner and many more. Instagram models are known for being a big advertiser in Calvin Klein underwear. However Calvin Klein is a big company and sell a lot more than just underwear. They are primarily a formal fashion brand with clothes that are more suited for business fashion than streetwear. They are also a big contender in jewlery, having many pieces that are intracate and essential for a collection.
+--------
+ 
+# 🐎 Polo, Raulph Lauren 🐎
+![Logo](https://qph.fs.quoracdn.net/main-qimg-a1ed805e2f4bacf23ea7a8e6fbfcf249.webp)
+
+# Specialty ( ͡° ͜ʖ ͡°)
+
+### The Polo
+![Polo](https://cache.mrporter.com/variants/images/4068790126487369/in/w2000_q80.jpg)
+
+--------
+> Polo, Raulph Lauren is the staple of the perfect polo. Their polos are the only way to go in any situation. They are known to be at the top of the polo game with no rivals. They are primarily a formal fashion brand similar to Calvin Klein in a way that their clothes is styleized.
 --------
  
