@@ -9,4 +9,7 @@
 ### The Bathing Ape  
 ![Hoodie](https://images-na.ssl-images-amazon.com/images/I/51IS6-PdiEL._UX679_.jpg)
 
+--------
+This BAPE hoodie is the staple of the company. Many people spend thousands of dollars to get their hands on resold versions of this hoodie. The original design is what keeps people buying. The hoodie is mostly used as a status symbol rather than purely for fashion.
+
 ### 
